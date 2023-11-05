@@ -24,5 +24,4 @@
 * MAU 1.28 мільярда
 * DAU 500 мільйонів
 
-
-![Imgur](https://imgur.com/6BVkqyG)
+![Imgur](https://i.imgur.com/6BVkqyG.png)
