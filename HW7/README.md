@@ -25,3 +25,5 @@
 * DAU 500 мільйонів
 
 ![Imgur](https://i.imgur.com/6BVkqyG.png)
+----------------------------------------------
+![Imgur](https://i.imgur.com/yHLXSsV.png)
